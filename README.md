@@ -1,6 +1,6 @@
 <h2 align="center"><i>AND <ins>NOBODY</ins> DEFIES THE <code>VALENTIN RENEGADE</code> ! </i></h2></span>
 <img width="1000" height="5" alt="image" src="https://github.com/user-attachments/assets/9370eb74-d5f6-419a-bd31-7799f7a5cefb" /><br>
-<img align="left" width="197" height="190" alt="image" src="https://github.com/user-attachments/assets/04929d21-3be5-4f2f-b235-734c7c100cd5" hspace="1" />
+<img align="left" width="197" height="188" alt="image" src="https://github.com/user-attachments/assets/04929d21-3be5-4f2f-b235-734c7c100cd5" hspace="1" />
 <h3>[ INITIATING DETAILS . . . ]</h3>
 <p align="left">
 <code>GLI<del>TCH</del></code> / RISK ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
