@@ -7,5 +7,6 @@ ________________________________________________________________________________
 <code>GLI<del>TCH</del></code> / RISK ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
 NONBINARY—<code>AROMANTIC</code> TRANSMASC ⬦ <b>17</b> Y/O<br>
 <code>LOCATION</code> : <b>DOCKS</b> MOSTLY ⌒⌒ <i> LOCAL LURKER</i><br>
-！◇    <ins>IWCAUTION</ins> <b><i>ALWAYS</i></b>. 
+！◇    <ins>IWCAUTION</ins> <b><i>ALWAYS</i></b>. <br>
+![](https://komarev.com/ghpvc/?username=lxnarian&color=dc143c)
 </p>
