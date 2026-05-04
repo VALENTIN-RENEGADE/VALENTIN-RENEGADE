@@ -4,7 +4,8 @@ ________________________________________________________________________________
 <img align="left" width="197" height="175" alt="image" src="https://github.com/user-attachments/assets/04929d21-3be5-4f2f-b235-734c7c100cd5" hspace="1" />
 <h3>[ INITIATING DETAILS . . . ]</h3>
 <p align="left">
-GLITCH / RISK ✦ HE / END 、 ⌕ <br>
-NONBINARY—AROMANTIC TRANSMASC ⬦ 17 Y/O<br>
-LOCATION : DOCKS MOSTLY ⌒⌒  LOCAL LURKER<br>
+<code>GLI<del>TCH</del></code> / RISK ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
+NONBINARY—<code>AROMANTIC</code> TRANSMASC ⬦ <b>17</b> Y/O<br>
+<code>LOCATION</code> : <b>DOCKS</b> MOSTLY ⌒⌒ <i> LOCAL LURKER</i><br>
+！◇    <ins>IWCAUTION</ins> <b><i>ALWAYS</i></b>. 
 </p>
