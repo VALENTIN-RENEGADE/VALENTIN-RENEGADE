@@ -4,7 +4,7 @@
 <h3>[ INITIATING DETAILS . . . ]</h3>
 <p align="left">
 <code>GLI<del>TCH</del></code> / VAL ✦ <b>HE</b> / <code>END</code> 、 ⌕ <br>
-  NON-BINARY—<code>AROMANTIC</code> TRANSMASC ⬦ <b>17</b> Y/O<br>
+  NON-BINARY—<code>AROMANTIC</code> TRANSMASC +2 FLAGS⬦ <b>17</b> Y/O<br>
 <code>LOCATION</code> : <b>DOCKS</b> MOSTLY ⌒⌒ <i> LOCAL LURKER</i></br>
 ⯏ ◇    <ins>IWCAUTION</ins> <b><i>ALWAYS</i></b> .  ﹕DO <b>NOT</b> COVER ⊹ READ <b>RENTRY</b> FOR MORE INFO <i>!</i>﹒ ✦ <br>
 <img src="https://komarev.com/ghpvc/?username=VALENTIN-RENEGADE&label=PLAGUE+WALKERS&style=for-the-badge&color=FF006E" /><br>
